@@ -1,4 +1,4 @@
-## Heyyyyy
+## Hey thereee!
 
 I'm <b>CyberSpear</b>, an Electrical Engineering student. I'm currently mostly a beginner when it comes to coding, but aim to further my current skills and learn new ones. My goal is to eventualy build an amazing portfolio. <br />
 
